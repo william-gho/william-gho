@@ -1,6 +1,6 @@
 - 👋 Hi, You can call me Wil, William, or anything.
 - 👀 You can reach me at [Account](https://github.com/wliam06).
-- 🌍 Sometimes I used my weekend with studying and research from what I like.
+- 🌍 Lifelong learner.
 
 <!---
 william-gho/william-gho is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
