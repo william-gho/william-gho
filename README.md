@@ -1,5 +1,5 @@
 - 👋 Hi, You can call me Wil, William, or anything.
-- 👀 You can reach me at [Account](https://github.com/wliam06).
+- 👀 Sneak peek what I do at [Account](https://github.com/wliam06).
 - 🌍 Lifelong learner.
 
 <!---
