@@ -1,5 +1,5 @@
 - 👋 Hi, You can call me Wil, William, or anything.
-- 👀 Sneak peek what I do at [Personal Account](https://github.com/wliam06).
+- 👀 Sneak peek what I do at [Personal Account](https://github.com/wliamgho).
 - 🌍 Lifelong learner.
 - 🤓 Startup enthusiast.
 
